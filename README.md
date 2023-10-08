@@ -1,5 +1,6 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br> 📫 How to reach me anirbanmca40@gmail.com<br>⚡ Fun fact I enjoy going Paragliding on vacations
+🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br> 📫How to reach me anirbanmca40@gmail.com<br>
+⚡ Fun fact I enjoy going Paragliding on vacations
 
 
 ## 🌐 Socials:
